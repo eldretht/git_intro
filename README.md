@@ -1,1 +1,2 @@
 Taylor Eldreth
+eldretht@oregonstate.edu
